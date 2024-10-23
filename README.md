@@ -19,4 +19,14 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
-
+https://www.pinterest.com/pin/1051801688021580438
+https://sodo696z.blogspot.com/2024/10/ieu-khoan-va-ieu-kien-nguoi-choi-can.html
+https://github.com/sodo696z/-i-u-Kho-n-v-i-u-Ki-n-Ng-i-Ch-i-C-n-Tu-n-Th-T-i-SODO-casino/blob/main/README.md
+https://sites.google.com/view/sodo696z/home/19
+http://so697z.xim.tv/tin-tuc/dieu-khoan-va-dieu-kien-nguoi-choi-can-tuan-thu-tai-sodo-casino-new83605.html
+https://www.notebook.ai/documents/1449601
+https://x.com/sodo696z8566/status/1849112025152270502
+https://www.diigo.com/item/note/b7g42/wj3b?k=c3d50bb6868e842d799c20bd295573df
+https://band.us/band/96481707/post/20
+https://zenwriting.net/xipac7g9ue
+https://sodo696z.bcz.com/2024/10/23/dieu-khoan-va-dieu-kien-nguoi-choi-can-tuan-thu-tai-sodo-casino/
